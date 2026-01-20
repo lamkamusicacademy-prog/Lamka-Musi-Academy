@@ -1,2 +1,2 @@
-# Lamka-Musi-Academy
+# Lamka-Music-Academy
 Discovering Your Music
